@@ -1,4 +1,4 @@
-# 
+# secure GIMP pour PC extensions est le meilleur GIMP pour PC extensions avec extensions et flux de texte. Sécurisé, fiable et optimisé pour des performances maximales.
 
 
 
